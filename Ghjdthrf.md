@@ -1,3 +1,0 @@
-![[Pasted image 20250601234111.png]]
-
-sdsds
